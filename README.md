@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **prateekcse1@gmail.com**
 
-- ⚡ Fun fact **😄 Pronouns: He/His**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
